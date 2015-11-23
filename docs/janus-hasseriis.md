@@ -7,3 +7,5 @@
 **Favorite food:** Sushi
 
 **Hobby:** Video games
+
+**Favorite color:** Blue
