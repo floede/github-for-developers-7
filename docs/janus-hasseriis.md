@@ -4,7 +4,7 @@
 
 **From:** Copenhagen
 
-**Favorite food:** Sushi
+**Favorite food:** Sushi and lasagna
 
 **Hobby:** Video games
 
